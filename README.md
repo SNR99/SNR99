@@ -1,6 +1,6 @@
 
 
-### Hi there, I am Ntwanano AKA SNR
+### Hi there, I am Ntwanano aka SNR
 
 
 
